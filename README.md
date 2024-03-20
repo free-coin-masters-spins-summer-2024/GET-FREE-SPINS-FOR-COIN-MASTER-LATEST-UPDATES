@@ -2,9 +2,9 @@
 
 **19 second** -Today, in March 2024, unlock Coin Master's exclusive Free Spins, Coins, and Links. Simply tap the "Collect Now" button to reveal a pop-up menu, offering the option to open it directly within Coin Master for instant rewards and gameplay.
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
  
 Coin Master has taken the mobile gaming world by storm with its unique blend of strategy, luck, and social interaction. Developed by Moon Active, this addictive game has captured the hearts of millions of players worldwide. At its core, Coin Master is a village-building game where players spin a slot machine to earn coins, collect cards, and unlock new villages. The free spins mechanic is central to the gameplay, providing players with the opportunity to win valuable rewards that aid in their village expansion and progression through levels.
 
